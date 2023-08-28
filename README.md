@@ -5,8 +5,8 @@
 
 Here are some ideas to get you started:
 -->
-- 🔭 I’m currently working on prework!
-- 🌱 I’m currently learning a LOT!
+- 🔭 I recently graduated from Tech Elevator!
+- 🌱 I’m currently still learning a *lot* while searching for the right career opportunity.
 - 📫 How to reach me: https://www.linkedin.com/in/kenna-elizabeth
-- ⚡ Fun fact: ... I have the daunting task of transferring 10,000+ files from Aperature to... something else w/out losing edits!
+- ⚡ Fun fact: I LOVE nature, travel, photography and combining the 3 (& did that professionally for a bit previously).
 
